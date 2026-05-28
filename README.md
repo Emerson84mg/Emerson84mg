@@ -18,7 +18,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### Vamos nos divertir e bater 1 bom papo . segue ai
  
 <div> 
   <a href="https://www.youtube.com/@emersonsouza3322
